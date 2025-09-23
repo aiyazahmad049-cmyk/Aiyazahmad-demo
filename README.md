@@ -1,3 +1,3 @@
 #Aiyazahmad-demo
 <br>
-auther Name:- Md Aiyaz Ahmad
+auther Name:- Md Aiyaz (Ahmad)
